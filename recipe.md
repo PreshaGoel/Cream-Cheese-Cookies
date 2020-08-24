@@ -1,0 +1,4 @@
+Whisk together the flour, salt and baking powder in a medium bowl and set aside.
+Using a stand mixer fitted with a paddle attachment, or an electric hand mixer, cream the butter and cream cheese together. Add the sugar in and beat until light and fluffy. Add the egg and vanilla in and mix until combined. Scrape the bowl down and miix one more time to combine.
+Add the dry mixture into the wet and mix on low until just combined. Use a spatula to scrape the bottom and give the mixture one last mix then cover and chill for at least an hour.
+Heat oven to 375F then portion out roughly two tablespoon-sized pieces and roll into a ball. The dough will be sticky so It's best to dampen your hands a bit and just wash them when they get a bit covered. Place about two inches apart on a baking sheet lined with parchment paper or a silpat and bake for 10 minutes or until the edges are set and just turning golden.
